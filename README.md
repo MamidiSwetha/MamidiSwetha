@@ -2,7 +2,7 @@
 # About Me
 
 ## Introduction
-Hello! I'm [MamidiSwetha], a passionate individual dedicated to continuous learning and self-improvement.
+Hello! I'm Mamidi Swetha, a passionate individual dedicated to continuous learning and self-improvement.
 
 ## Interests
 - Singing and exploring all genres of music
